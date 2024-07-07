@@ -1,1 +1,1 @@
-# Clickfunnel-Custom-Image-Slider-
+# Clickfunnel-Custom-Image-Slider
